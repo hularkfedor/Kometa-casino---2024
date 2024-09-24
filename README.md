@@ -1,4 +1,4 @@
-# Kometa-casino---2024
+# Kometa casino промокод на эксклюзивный бонус 2024
 Kometa casino промокод при регистрации: FVIP
 
 **[Активируйте промокод на казино Kometa прямо сейчас и начните выигрывать больше!](https://linkcasino.ru/kometa_fvip)**
